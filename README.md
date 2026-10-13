@@ -12,3 +12,9 @@ Photograph's credits
 One pot teriyaki chicken casserole
 Photographer: Carson Downing / Food Styling: Shannon Goforth / Prop Styling: Gabriel Greco
 
+pernil Pork
+photographer:Chef Mo
+
+Dutch-Chicken-soup
+photographer:Peyton Beckwith 
+
